@@ -1,28 +1,28 @@
-# ˈseːpɔ ˈdyːɾənə
+# ˈseː pɔ ˈdyːɾənə
 
 ##
-ˈseːpɔ ˈdyːɾənə
+ˈseː pɔ ˈdyːɾənə
 
 ##
-ˈkʉːɑ siːɾ mœː
+ˈkʉːɑ siːəɾ møː
 
 ##
-ˈjæɪtɑ siːɾ meː
+ˈjæɪtɑ siːəɾ meː
 
 ##
-ˈhɛstn̩ siːɾ ˈʋɾɪːnsk
+ˈhɛstn̩ siːəɾ ˈʋɾɪːnsk
 
 ##
-ˈgɾiːsn̩ siːɾ gɾʏnt
+ˈgɾiːsn̩ siːəɾ gɾʏnt
 
 ##
-ˈhøːnɑ siːɾ klʊk
+ˈhøːnɑ siːəɾ klʊk
 
 ##
-ˈhʉnn̩ siːɾ ʋɔf
+ˈhʉnn̩ siːəɾ ʋɔf
 
 ##
-ˈbʊnn̩ siːɾ hʏʂ
+ˈbʊnn̩ siːəɾ hʏʂ
 
 ##
 * License: [CC-BY-NC]
